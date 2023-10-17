@@ -15,6 +15,7 @@ Welcome! Add your name to this list, keeping the list in alphabetical order:
 - Edgar Nwajei
 - Folashade Ode
 - Fortune Obadiah
+- Franklyn Onwuegbuna
 - Greatman Ugorji
 - Ihedioha Chinedu Innocent
 - Khushi Gautam
